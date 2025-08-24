@@ -15,4 +15,7 @@ Contact – How you can reach me
 I believe in continuous learning, exploring new ideas, and sharing knowledge with others.
 Feel free to explore and connect with me!
 
-RajD2466.github.io
+GitHub :- RajD2466
+Email :- rajdhanak08@gmail.com
+
+Live Website Link :- https://rajd2466.github.io/personal-web-page/
